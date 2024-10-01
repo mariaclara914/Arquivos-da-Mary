@@ -8,4 +8,4 @@ Alguns me chamam de Mary ou Buri. Este é o meu espaço para armazenar projetos 
 - Amo elefantes bebês 🐘
 - Sou sensível e choro por tudo; filmes de romance me fazem chorar horrores
 - Fã da série The Vampire Diaries
-- 
+  
